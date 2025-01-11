@@ -2,7 +2,7 @@
 - 👀 I’m interested in everything that excites me
 - 🌱 I’m currently learning data science
 - 💞️ I’m looking to collaborate with like minded peers
-- 📫 How to reach me ... vinayaksabu8@gmail.com
+- 📫 How to reach me ... vinayaksabuofficial@gmail.com
 - ⚡ Fun fact: smile is still free of cost👀
 
 <!---
